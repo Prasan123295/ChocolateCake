@@ -1,0 +1,1 @@
+milk, sugar, baking soda and powder, vanilla essence, cocoa powder, maida.
